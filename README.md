@@ -1,0 +1,1 @@
+# Avezxonov-prektlari
